@@ -1,0 +1,1 @@
+# 2025.2_QXD0068_reuso_de_software-01
